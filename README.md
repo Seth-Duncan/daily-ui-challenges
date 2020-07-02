@@ -20,4 +20,7 @@ Thanks for checking out my work and ***Enjoy!***
 
 
 Seth Duncan
+
 @SethDuncan - Twitter
+
+
